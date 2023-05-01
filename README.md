@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **michaelfriedrich253@gmail.com**
 
-- 📄 Know about my experiences [(resume)]((resume))
+- 📄 Know about [my experiences](https://drive.google.com/file/d/19J86HWpyEBQe1mj1Mc60Jf0WUN1t3iv2/view?usp=sharing)
 
 <h3 align="left">📬 Connect with me:</h3>
 <p align="left">
